@@ -8,4 +8,4 @@
 
 Представляю вашему вниманию мою _Мотильду_:
 
-https://sun9-80.userapi.com/impf/c841427/v841427517/15c1e/qt9XVMnZevc.jpg?size=2048x1536&quality=96&sign=566df2a3dcf20baa59ceee0903a88e9b&type=album
+![](https://sun9-80.userapi.com/impf/c841427/v841427517/15c1e/qt9XVMnZevc.jpg?size=2048x1536&quality=96&sign=566df2a3dcf20baa59ceee0903a88e9b&type=album)
